@@ -1,4 +1,6 @@
 # The Preface to the Pavilion of Prince Teng
 
-Push open the embroidered doors and lean over the carved rooftops. The mountains and plains stretch far and wide, filling my sight, while the rivers and marshes wind about, striking awe into my heart. The mansions of the wealthy, where the sound of bells and the display of precious vessels mark their feasts, spread across the land. The numerous boats and ships fill the river channels, with prows shaped like blue birds and yellow dragons.
-When the clouds disperse and the rain stops, the sunlight shines brightly and the whole area is bathed in clarity. The setting sun and the solitary wild duck soar together in the sky, and the autumn waters merge with the vast expanse of the sky in one uniform color. Fishermen sing in the evening, and their voices echo all the way to the shores of Poyang Lake. The formation of geese, startled by the cold, cries out until its sound fades away over the banks of the Xiang River at Hengyang.
+Technologies that cannot be deciphered, widely disseminated, or developed into a discipline are commodities, not knowledge.
+
+
+
